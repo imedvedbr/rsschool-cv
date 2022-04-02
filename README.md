@@ -1,1 +1,1 @@
-https://imedvedbrE.github.io/rsschool-cv/
+https://imedvedbr.github.io/rsschool-cv/
